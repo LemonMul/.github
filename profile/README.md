@@ -1,4 +1,4 @@
-## Hi there We are the LemonMul🍋 team.👋
+## Hi there! We are the LemonMul🍋 team.👋
 
 <!--
 
